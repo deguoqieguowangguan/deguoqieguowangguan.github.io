@@ -4,3 +4,4 @@
 <a href="http://yuxiangwang0525.oss-cn-qingdao.aliyuncs.com/BGMmake1232/wgls.mp3">点我听</a>
 # 最重要的事情
 千万,千万不要大量转发啊啊啊啊啊
+![王冠老师-人格践踏](https://deguoqieguowangguan.github.io/deguoqieguowangguan-image/Screenshot_20201226_110312.jpg)
